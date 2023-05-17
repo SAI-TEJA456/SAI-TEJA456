@@ -1,5 +1,7 @@
 - 👋 Hi, I’m @SAI-TEJA456
-- 👀 I’m interested in becoming developer and looking for job.
+- 👀 I’m interested in becoming developer.
+- 👀 I will be soon going purse master in CIS & IT.
+- 📫 It would be great if your provide any internship or job.
 - 🌱 I’m currently learning web development course.
 - 💞️ I’m looking to collaborate on working any web development projects.
 - 📫 How to reach me l.saiteja456@gmail.com
